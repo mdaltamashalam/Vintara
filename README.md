@@ -172,4 +172,4 @@ Subscribe to our newsletter.
 Subscribe to Discover for exclusive deals and updates!
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-Copyright 2022 | Vintara Shopping | All Rights Reserved By -Md Altamash Alam
+Copyright 2022 | Vintara Shopping | All Rights Reserved By - Altamash | Shatakshi | Amir | Manya
